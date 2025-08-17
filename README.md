@@ -26,7 +26,7 @@
 ## 📫 Let’s Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/sanchita-maity799/)  
 - 🌟 GitHub: [Sanchita-Maity](https://github.com/Sanchita-Maity)  
-- 📧 Email: your-email@example.com  
+- 📧 Email: Sanchita@gmail.com  
 
 ---
 
